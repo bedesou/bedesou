@@ -1,5 +1,9 @@
-<p align="center">
-  <img src="https://files.catbox.moe/z7q2tu.jpg"width="500"/> </p>
-  <p align="center">
-<a href="https://henrysword.straw.page">straw </a> ⠀<img src="https://files.catbox.moe/nqmpbt.gif"/>⠀ 
-</p>
+<a href="https://henrysword.straw.page">straw</a> <a href="https://pronouns.cc/@historypilled">pronoun</a>
+
+![](https://files.catbox.moe/zi9hg0.gif)
+
+![](https://files.catbox.moe/qm3big.gif)
+
+![](https://files.catbox.moe/rn86af.gif)
+
+![](https://files.catbox.moe/88qb40.gif)
