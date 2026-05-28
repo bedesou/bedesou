@@ -1,4 +1,4 @@
-<a href="https://rentry.co/historypilled">rentry</a> <a href="https://henrysword.straw.page">straw</a> <a href="https://pronouns.cc/@historypilled">pronouncc</a>
+<a href="https://rentry.co/swordmeister">rentry</a> <a href="https://henrysword.straw.page">straw</a> <a href="https://pronouns.cc/@historypilled">pronouncc</a>
 
 ![](https://files.catbox.moe/zi9hg0.gif)
 
